@@ -485,5 +485,13 @@ Semana 4 – Neurociência
 
 - Como tomar decisões com menos esforço mental
 
- 
+
+
+ Semana 5 – Antes e Depois
+
+ - Comparativos de fluxos
+
+ - Depoimentos
+
+ - Dicas rápidas
 
